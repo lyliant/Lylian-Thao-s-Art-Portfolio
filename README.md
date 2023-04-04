@@ -1,2 +1,2 @@
-# Lylian-Thao-s-Art-Portfolio
-Intro to Digital Media
+# Lylian-Thao-BFA-Admission-Art-Portfolio
+BFA Admission Application
